@@ -23,7 +23,7 @@ sale of banking products
 **Education**
 2018
 Higher education: BELARUS STATE ECONOMIC UNIVERSITY
-Marketing and logistics: Marketer-economist 
+*Marketing and logistics*: Marketer-economist 
 
 **Courses**
 2022
